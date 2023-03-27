@@ -2,7 +2,7 @@
 
 
 - 🌱 I’m currently learning Everything :D
-- 💬 Ask me about Programming
+- 💬 Don't ask me anything pls
 - 📫 How to reach me: tlbnbnabi@gmail.com
 - ⚡ Fun fact: Nothing 
 
